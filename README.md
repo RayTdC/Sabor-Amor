@@ -1,3 +1,3 @@
 # Sabor-&-Amor
 
-Em andamento, alterações e adições de conteúdo em produção.
+Em andamento, alterações e adição de conteúdo em produção.
